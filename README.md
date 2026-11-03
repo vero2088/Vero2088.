@@ -57,7 +57,7 @@ Backend Engineering • Software Architecture • Cloud Technologies • Microse
 
 I'm interested in collaborating on meaningful software projects and connecting with other professionals in the technology community.
 
-📫 **LinkedIn:** [Connect with me](https://www.linkedin.com/)
+📫 **LinkedIn:** [Connect with me](https://www.linkedin.com/in/ver%C3%B3nica-luna-ba9934318/details/skills/)
 
 ---
 
